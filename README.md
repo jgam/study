@@ -1,2 +1,2 @@
 # study
-Strive for progress, not perfection
+Strive for progress, not perfections
